@@ -1,5 +1,5 @@
 # Starter Web Project
-This is a starter project
+This is a starter project.its the beginning
 ##Introduction
 An intriduction to project.asgjkabckdabjkcdajk
 ## Purpose
