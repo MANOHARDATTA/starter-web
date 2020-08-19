@@ -3,7 +3,7 @@ This is a starter project
 ##Introduction
 An intriduction to project.asgjkabckdabjkcdajk
 ## Purpose
-jbdsbda
+jbdsbda.ghsgfdjkfgdjkgfkjd
 #How to Contribute
 jbfdjfdsbv
 hkahakhfkdfkdkfdknkdsnkcdnskndks
