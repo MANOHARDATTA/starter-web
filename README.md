@@ -8,4 +8,4 @@ jbdsbda.ghsgfdjkfgdjkgfkjd
 jbfdjfdsbv
 hkahakhfkdfkdkfdknkdsnkcdnskndks
 
-Copyright 2004
+Copyright 2004,all rights reserved
